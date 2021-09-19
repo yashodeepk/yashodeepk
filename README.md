@@ -2,4 +2,4 @@
 
 - 👯 I’m looking to collaborate on open source projects
 - 📫 You can reach me at yrk9421@gmail.com
-- ⚡ Love Technology, Travel and trek 
+- ⚡ Love Technology, Travel and Trek 
